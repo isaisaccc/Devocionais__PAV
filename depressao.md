@@ -1,53 +1,9 @@
-#Depressão
-michael
+##### louvor Michel Douglas
 
-ensiname a sentir teu coracao 
-jesus quero ouvir teu respirar
-me aprocimar de ti com minha fe
-e te adorar
+1. abraçame - Andre valadão
+1. Teu amor não falha - Nívea Soares
+1. Tudo quetem folego - Michael Douglas
 
-jesus tu es o pao que me alimeta
-o verbo vivo que desceu do ceu 4
-vem aquecer meu frio coracao com teu amor
-
-
-abracame abracame curame curame
-ungeme ungeme tocame tocame
-
-tu vens sobre mim com teu manto
-reina em mim com tua gloria
-pois ao teu lado é meu lugar 
-aleluia aleluia
-
-vem sobre mim com teu manto
-e reina em mim com tua gloria
-pois ao teu lado e meu lugar
-aleluia aleluia
-
-
-teu amor nao falha
-tu es mesmo pra sempre
-
-cançao de douglas
-
-tudo que tem folego
-tudo que respira
-erga a voz e cante a Deus
-reis e poderos
-livre ou escravos
-erga a voz e cante a Deus
-
-que governa sobre todos
-e se acenta no seu trono
-que opera maravilgas em siao
-que e digno de honra 
-e e rocha inabalavel
-
-	REFRAO
-
-se cantamos para ti
-sei que podes nos ouvir
-o vem e toma o teu lugar.
 
 bernardo  14/09
 
